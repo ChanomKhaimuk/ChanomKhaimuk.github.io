@@ -1,1 +1,0 @@
-# ChanomKhaimuk.github.io
